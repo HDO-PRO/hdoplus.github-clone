@@ -1,7 +1,7 @@
 # Download HDO Box App – Unlimited Entertainment
 ![HDO Box Plus Logo](https://hdoboxplus.com/wp-content/uploads/2024/11/cropped-hdoplus-logo.png)
 
-Website: https://hdoboxplus.com/
+## **Website:** https://hdoboxplus.com/
 
 ## **Introduction**
 Welcome to HDOBoxPlus.com, the leading website specializing in providing information and instructions for using the HDO Box application – a diverse and rich online entertainment platform.
