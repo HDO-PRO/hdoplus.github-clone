@@ -1,5 +1,6 @@
 # Download HDO Box APK: The Best Free Streaming App for Movies and TV Shows on Firestick, Android, iOS and Smart TV
-![HDO Box Plus Logo](https://hdoboxplus.com/wp-content/uploads/2024/11/cropped-hdoplus-logo.png)
+
+![Download HDO Box for Android TV](https://github.com/user-attachments/assets/3eb36435-83f8-46e5-a240-11dbefed36b1)
 
 ## HDO BOX App Latest Version:
 
