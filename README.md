@@ -11,15 +11,3 @@ With dedication and commitment to bringing the best experience, we are a reliabl
 📧 Email: hdoboxplus@gmail.com
 
 📞 Phone: +1(918)817-3755
-
-## **Follow Us on Social**
-
-1. **Linkedin**: https://www.linkedin.com/in/hdo-box-plus-344b59342/
-2. **Github**: https://github.com/qwertymod1111/hdobox
-3. **Telegram**: https://t.me/hdoboxplus
-4. **X（Twitter)**: https://x.com/HDOBoxPlus
-5. **Youtube**: https://www.youtube.com/@HDOBoxPlus
-6. **Vimeo**: https://vimeo.com/hdoboxplus
-7. **Pinterest**: https://www.pinterest.com/hdoboxplus/
-8. **Tiktok**: https://www.tiktok.com/@hdoboxplus
-9. **Reddit**: https://www.reddit.com/r/HDOBoxPlus/
