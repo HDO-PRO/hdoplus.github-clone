@@ -2,7 +2,7 @@
 
 ![Download HDO Box for Android TV](https://github.com/user-attachments/assets/3eb36435-83f8-46e5-a240-11dbefed36b1)
 
-## HDO BOX App Latest Version: [https://hdoboxplus.com/](https://hdoboxplus.com/)
+## **Download HDO BOX Latest Version**: [https://hdoboxplus.com/](https://hdoboxplus.com/)
 
 Looking for a seamless streaming app to enjoy your favorite movies and TV shows? Download HDO Box APK now to unlock an extensive library of entertainment, available for free. This versatile application is designed for users seeking high-quality streaming without the hassle of subscriptions or fees.
 
