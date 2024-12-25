@@ -9,3 +9,7 @@ Welcome to HDOBoxPlus.com, your go-to source for information and guides on using
 - **Address:** 1234 Entertainment Avenue, Suite 567, Los Angeles, CA 90001, USA
 - **Email:** [hdoboxplus@gmail.com](mailto:hdoboxplus@gmail.com)
 - **Phone:** +1(918) 817-3755
+
+---
+
+**Please note:** HDO Box Plus is completely different from HDO Pro and is not connected to it in any way.
