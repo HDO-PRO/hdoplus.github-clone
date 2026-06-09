@@ -20,16 +20,21 @@ We are dedicated to helping you get the best possible experience while exploring
 
 ## 📬 Contact Us
 
-**🏢 Address:**  
-1234 Entertainment Avenue, Suite 567  
-Los Angeles, CA 90001  
-USA  
+<details>
+  <summary>Click to expand contact details</summary>
 
-**📧 Email:**  
-[hdoboxplus@gmail.com](mailto:hdoboxplus@gmail.com)
+  **🏢 Address:**  
+  1234 Entertainment Avenue, Suite 567  
+  Los Angeles, CA 90001  
+  USA  
 
-**📞 Phone:**  
-+1 (918) 817-3755  
+  **📧 Email:**  
+  [hdoboxplus@gmail.com](mailto:hdoboxplus@gmail.com)
+
+  **📞 Phone:**  
+  +1 (918) 817-3755  
+
+</details>
 
 ---
 
